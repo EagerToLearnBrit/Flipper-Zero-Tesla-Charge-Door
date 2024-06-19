@@ -1,1 +1,1 @@
-Educational purpose!!!
+Educational purposes only!!!
